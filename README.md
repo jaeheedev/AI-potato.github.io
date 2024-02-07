@@ -1,1 +1,1 @@
-# AI-potato.github.io
+# jaeheedev.github.io
